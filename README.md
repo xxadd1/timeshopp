@@ -1,0 +1,2 @@
+# timeshopp
+discord.gg/timeshop
